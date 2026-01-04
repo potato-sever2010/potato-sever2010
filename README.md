@@ -1,3 +1,9 @@
-### Hi there I'm potatosever
+### Hi there I'm "potato-sever"
+### 嗨，大家好，我是"potato-sever"
+### Привет, я картошечка.
+### Salut, je suis "potato-sever"
 ***
-阿把按吧按吧按吧按吧按吧按吧按吧按吧啊
+Welcome to our warehouse!
+欢迎光临本仓库
+Добро пожаловать на склад бена
+Bienvenue dans notre entrepôt
